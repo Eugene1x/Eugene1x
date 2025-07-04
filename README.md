@@ -6,4 +6,4 @@
 
 ---
 
-📈 Always improving. Always shipping.
+
